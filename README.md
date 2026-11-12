@@ -1,2 +1,2 @@
 # GR-Finder
-actualy i don't its wrk but i hope it won't.... -Joshua Paul
+actualy i don't think its gonna wrk but i hope it won't.... -Joshua Paul
